@@ -1,2 +1,0 @@
-# FelicianaR.github.io
-personal
